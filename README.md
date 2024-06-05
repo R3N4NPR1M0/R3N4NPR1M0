@@ -12,4 +12,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meus projet
 
 -@99mole60ficaduro
 
-![](https://tenor.com/pt-BR/view/gojo-satoru-satoru-gojo-talking-satoru-gojo-anime-gif-9615156950207548718)
+![](https://media.tenor.com/hW_mTYy_zS4AAAAi/gojo-satoru.gif)
